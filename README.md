@@ -1,1 +1,0 @@
-# zettabyte-day1
